@@ -1,4 +1,4 @@
-### 1-day-of-100
+### 1st-day-of-100
 ✋🏼I´m just going to goof around with the very few notions I have acquired so far. 
 Feel free to suggest or comment anything along the way. I´m new to everything:
 
